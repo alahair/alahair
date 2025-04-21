@@ -1,4 +1,4 @@
-hey gang i only have this for ponytown lol
+hey gang i only have this for pt lol
 
 i'm moon/alahair/hunter - a lesbian who can't tell if they're NB or a demigirl. any pronouns
 
